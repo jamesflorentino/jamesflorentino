@@ -10,9 +10,9 @@
 
 ### Bio:
 
-I'm a coder and business operator who's been building companies and internet products for the past 8 years. I've been a coder for 20 years and have continuously improved my programming skills depsite the busy time requirement in business. I've hired close to a 100 people in the past 4 years alone and have been successful in my chosen industry for the past 10 years.
+I'm a coder and business operator who's been building companies and internet products for the past 8 years. I've been a coder for 20 years and have continuously improved my programming skills despite the busy time requirement in business. I've hired close to a 100 people in the past 4 years alone, and have been fairly successful in my chosen industry in crypto.
 
-Aside from coding, I'm skilled in entrepreneurship - taking financial risk, starting from scratch, hiring talents, and creating opportunities for skilled coders like you to become successful. Investors like to work with me because I understand both product and venture capital, and have a systematic way of generating returns.
+Aside from coding, I'm also skilled in entrepreneurship - taking financial risk, starting from scratch, hiring talents, and creating opportunities for skilled coders like you to become successful. Investors like to work with me because I understand both product and venture capital, and have a systematic way of generating returns.
 
 ### What I'm looking for:
 
