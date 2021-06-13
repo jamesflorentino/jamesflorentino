@@ -12,7 +12,7 @@
 
 I'm a coder and business operator who's been building companies and internet products for the past 8 years. I've been a coder for 20 years and have continuously improved my programming skills despite the busy time requirement in business. I've hired close to a 100 people in the past 4 years alone, and have been fairly successful in my chosen industry in crypto.
 
-Aside from coding, I'm also passionate about entrepreneurship - taking financial risk, starting from scratch, recruiting talents, and creating opportunities for people to become successful. I'm a big fan of using psychology to help people understand their strengths and weaknesses so we can achieve great things together.
+Aside from coding, I'm also passionate about entrepreneurship - taking financial risk, starting from scratch, recruiting talents, and creating products and services for people to use. I'm a big fan of using psychology to help people understand their strengths and weaknesses so we can achieve great things together.
 
 ### What I'm looking for:
 
